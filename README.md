@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... music, books, and movies
 - 🌱 I’m currently learning ... how to code
 - 💞️ I’m looking to collaborate on ... learning together
-- 📫 How to reach me ... Email me at tyxherr@gmail.com
+- 📫 How to reach me ... Email me!
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... my MBTI is INTJ
 
